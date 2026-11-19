@@ -1,1 +1,0 @@
-# estudiar_facil
